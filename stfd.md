@@ -8,11 +8,11 @@
 | **Shut The Fool       | **K**ing\*            | and cultural genocide |
 | Down.**               |                       |                       |
 +-----------------------+-----------------------+-----------------------+
+This is a mnemonic definition, not an etymology.
 
 DON’T Fool Around With Sexual Violence
 
-  ------------------------------------ ------------------------------------
-  *SAY THIS* powerful, funny 	       *NOT THAT*
+### *SAY THIS* - rational, precise, peaceful, powerful, funny *NOT THAT*
 
   ------------------------------------ ------------------------------------
   Whats This For? Why This Folly? WTF? What The F\*\#k?
