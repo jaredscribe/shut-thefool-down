@@ -6,8 +6,8 @@ Why should we not use the F&#k word?
 
 the humanistic, anti-misogynistic reason
 ----------------------------------------
-Literally, it is a synonym for rape.  
-We shouldn't treat this casually;  its something that should always be deplored.s
+Literally, it is a synonym for rape.  Sexual violence shouldn't be treated in the casual manner that we have become acculturated to.  
+We shouldn't trivialize the experiences of victims by turning this into a metaphor for some kind of mental or psychic torment.
 
 
 The logical reason
