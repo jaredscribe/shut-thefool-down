@@ -1,5 +1,4 @@
-### *SAY THIS* - rational, precise, peaceful, powerful, funny *NOT THAT*
-
+*SAY THIS* - rational, precise       | *NOT THAT*
 ------------------------------------ | ------------------------------------
 Fail. Foul. Fie!                     | F@#k!
 Whats This For? Why This Folly? WTF? | What The F@#k?
