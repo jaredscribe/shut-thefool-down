@@ -1,9 +1,20 @@
-*SAY THIS* - rational, precise       | *NOT THAT*
+RESPECT WOMEN: SHUT THE FOOL DOWN
+
+DON'T                 | Foul your luck
+----------------------|-----------------------
+**F**ornicate         | rape                   
+**U**nder             | as imperial policy    
+**C**ommand of the    | of colonialism        
+**K**ing              | and cultural genocide 
+
+This is a mnemonic definition, not an etymology.
+
+*SAY THIS*                           | *NOT THAT*
 ------------------------------------ | ------------------------------------
 Fail. Foul. Fie!                     | F@#k!
 Whats This For? Why This Folly? WTF? | What The F@#k?
 Fool.                                | F@#king Idiot
-Foolish brother.                     | MotherF@#ker
+Foolish brother. Foul troubler       | MotherF@#ker
 Fire D.T. Flunk D.T.                 | F@#k D.T. (or whomever)
 Forget The Police. 		     | F@#k the	Police
 Free The People. Fight The Power.    | 
@@ -18,23 +29,8 @@ Let’s fornicate. Let’s have sex.     | Let’s f@#k
 That was very (sincerely,            | That was f@#king good (bad, or
 profoundly, radically, exceedingly)  whatever)
 good (or bad, as the case may be)    
-**Black** – Indigenous – Jewish -    | Blue Lives \_\_\_\_ 
-**WOMENS’ LIVES MATTER**             | (have you ever seen a blue person??)
 
 
+Respect women * DON’T normalize rape * DON'T fool around with sexual violence
 
-+-----------------------+-----------------------+-----------------------+
-| **DON’T**             | **F**ornication       | Sexual Violence       |
-+-----------------------+-----------------------+-----------------------+
-| **Foul Your Luck.**   | **U**nder             | as imperial policy    |
-+-----------------------+-----------------------+-----------------------+
-| ****                  | **C**ommand of the    | of colonialism        |
-+-----------------------+-----------------------+-----------------------+
-| **Shut The Fool       | **K**ing\*            | and cultural genocide |
-| Down.**               |                       |                       |
-+-----------------------+-----------------------+-----------------------+
-This is a mnemonic definition, not an etymology.
-
-DON’T Fool Around With Sexual Violence
-
-
+**Black** – Indigenous – Jewish - **WOMENS’ LIVES MATTER**              
