@@ -23,12 +23,12 @@ Fornicating may lead to multiplication|
 (Only perverts) F@#k The Pigs! 	     | F@#k the pigs
 Shut the fool down! Quiet!           | “Shut the f@#k Up!”
 Get the folly outta here! Go away!   | “Get the f@#k outta here”
-I’m going to punish you. rape is bad |  “I’m going to f@#k you up”
+I’m going to punish you.             |  “I’m going to f@#k you up”
 Who the folly are you? What gives you the authority?   | “Who the f@#k are you?
 Let’s fornicate. Let’s have sex.     | Let’s f@#k
-That was very (sincerely,            | That was f@#king good (bad, or
-profoundly, radically, exceedingly)  whatever)
-good (or bad, as the case may be)    
+That was very (sincerely,            | That was f@#king good/bad
+profoundly, radically, exceedingly)
+good/bad    
 
 
 Respect women * DON’T normalize rape * DON'T fool around with sexual violence
