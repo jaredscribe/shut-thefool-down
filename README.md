@@ -1,14 +1,5 @@
 RESPECT WOMEN: SHUT THE FOOL DOWN
 
-DON'T                 | Foul your luck         
-----------------------|-----------------------
-**F**ornicate         | rape                   
-**U**nder             | as imperial policy    
-**C**ommand of the    | of colonialism        
-**K**ing              | and cultural genocide 
-
-This is a mnemonic definition, not an etymology.
-
 *SAY THIS*                           | *NOT THAT*
 ------------------------------------ | ------------------------------------
 Fail. Foul. Fie!                     | F@#k!
@@ -30,8 +21,18 @@ That was very (sincerely,            | That was f@#king good/bad
 profoundly, radically, exceedingly)
 good/bad    
 
-
 Respect women * DON’T normalize rape * DON'T fool around with sexual violence
+
+DON'T                 | Foul your luck
+DON'T         
+----------------------|-----------------------
+**F**ornicate         | rape                   
+**U**nder             | as imperial policy    
+**C**ommand of the    | of colonialism        
+**K**ing              | and cultural genocide 
+
+This is a mnemonic definition, not an etymology.
+
 
 **Black** – Indigenous – Jewish - **WOMENS’ LIVES MATTER**      
 
