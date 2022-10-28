@@ -23,13 +23,14 @@ good/bad
 
 Respect women * DON’T normalize rape * DON'T fool around with sexual violence
 
-DON'T                 | Foul your luck
-DON'T         
+DON'T                 | Foul your luck                            
 ----------------------|-----------------------
+DON'T                 | 
 **F**ornicate         | rape                   
 **U**nder             | as imperial policy    
 **C**ommand of the    | of colonialism        
-**K**ing              | and cultural genocide 
+**K**ing              | and cultural genocide.
+ME                    | OR YOURSELF.
 
 This is a mnemonic definition, not an etymology.
 
